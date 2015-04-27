@@ -1,0 +1,1 @@
+Curated list of Awesome ideas and an App Store to showcase/host completed ones
